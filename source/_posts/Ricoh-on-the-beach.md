@@ -1,0 +1,7 @@
+---
+title: Ricoh on the beach
+date: 2021-04-03 23:16:20
+tags: ricoh
+---
+
+So today I went for a walk on the beach with my Ricoh GR II. It was nice, although the exposure settings were out of wack.
